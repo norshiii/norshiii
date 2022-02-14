@@ -1,2 +1,4 @@
 - 🌱 I’m currently learning python
-- 📫 How to reach me snap: mats_brenn04
+- 📫 How to reach me 
+-   discord: Norshiii #4885
+-   snap: mats_brenn04
